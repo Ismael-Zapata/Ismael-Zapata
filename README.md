@@ -1,0 +1,2 @@
+- 👋Hola yo soy Jehu Zapata
+- Estudio Ingeniería en Telecomunicaciones en la Universidad Nacional de San Agustin
