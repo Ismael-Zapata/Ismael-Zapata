@@ -1,2 +1,2 @@
-- 👋Hola yo soy Jehu Zapata
+- 👋Hola yo soy Jehu  Ismael Zapata
 - Estudio Ingeniería en Telecomunicaciones en la Universidad Nacional de San Agustin
